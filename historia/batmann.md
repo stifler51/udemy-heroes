@@ -1,0 +1,2 @@
+Holis actor 
+The Mamas & the Papas (llamados The Mama's and the Papa's en su álbum debut) fue un grupo vocal líder en la década de 1960. Fue uno de los grupos estandartes del folk rock neoyorquinos y uno de los pocos grupos estadounidenses que mantuvieron su éxito durante la Invasión británica junto a The Beach Boys y The Byrds. El grupo hizo grabaciones y actuó desde 1965 a 1968; produciendo cinco álbumes y tuvieron diez canciones en las carteleras musicales; aunque estuvieron un corto tiempo en la cima de la música, mantienen todavía fieles seguidores.
